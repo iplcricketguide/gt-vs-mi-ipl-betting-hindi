@@ -1,25 +1,28 @@
 # 🏏 GT बनाम MI (Gujarat Titans vs Mumbai Indians) — IPL मैच प्रीव्यू + बेटिंग गाइड (हिंदी)
 
 <p align="center">
-  <a href="https://1wjdqo.life/v3/7026/cricket-form?p=6jcc" target="_blank" rel="noopener noreferrer">
+  <a href="https://1wjdqo.life/v3/7026/cricket-form?p=6jcc" target="_blank" rel="noopener noreferrer" style="text-decoration:none;">
     <img
-      src="https://img.shields.io/badge/🏏%20GT%20पर%20बेट%20करें-1e40af?style=flat&labelColor=111827"
-      alt="GT पर बेट करें — 1win"
-      width="340"
+      src="https://img.shields.io/badge/🏏_BET_ON_GT-1e40af?style=for-the-badge&labelColor=111827"
+      alt="Bet on Gujarat Titans (GT) — 1win"
+      width="320"
       style="margin:10px 8px;"
     />
   </a>
 
-  <a href="https://1wjdqo.life/v3/7026/cricket-form?p=6jcc" target="_blank" rel="noopener noreferrer">
+  <a href="https://1wjdqo.life/v3/7026/cricket-form?p=6jcc" target="_blank" rel="noopener noreferrer" style="text-decoration:none;">
     <img
-      src="https://img.shields.io/badge/🏏%20MI%20पर%20बेट%20करें-16a34a?style=flat&labelColor=111827"
-      alt="MI पर बेट करें — 1win"
-      width="340"
+      src="https://img.shields.io/badge/🏏_BET_ON_MI-16a34a?style=for-the-badge&labelColor=111827"
+      alt="Bet on Mumbai Indians (MI) — 1win"
+      width="320"
       style="margin:10px 8px;"
     />
   </a>
 </p>
 
+<p align="center">
+  <b>GT = गुजरात टाइटंस</b> • <b>MI = मुंबई इंडियंस</b>
+</p>
 ## 🎁 प्रोमो कोड: **ONER**  |  🆓 फ्रीबेट (डिपॉज़िट पर)
 | डिपॉज़िट (INR) | फ्रीबेट |
 |---:|---:|
