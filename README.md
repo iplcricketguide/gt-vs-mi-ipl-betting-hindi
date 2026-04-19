@@ -2,12 +2,14 @@
 
 <a href="https://1wjdqo.life/v3/7026/cricket-form?p=6jcc" target="_blank" rel="noopener noreferrer">
   <img
-    src="https://img.shields.io/badge/%F0%9F%8F%8F_%E0%A4%AC%E0%A5%87%E0%A4%9F_%E0%A4%85%E0%A4%AC%E0%A4%B9%E0%A5%80-ff007f?style=for-the-badge&labelColor=111827"
+    src="https://img.shields.io/badge/🏏_BET_NOW-ff007f?style=for-the-badge&labelColor=111827"
     alt="GT vs MI पर बेट — 1win"
     width="520"
     style="display:block; margin:18px auto;"
   />
 </a>
+
+<p align="center"><b>अभी बेट करें</b></p>
 
 ## 🎁 प्रोमो कोड: **ONER**  |  🆓 फ्रीबेट (डिपॉज़िट पर)
 | डिपॉज़िट (INR) | फ्रीबेट |
@@ -174,12 +176,14 @@ A: “सेफ” का मतलब रिस्क-कंट्रोल: �
 
 <a href="https://1wjdqo.life/v3/7026/cricket-form?p=6jcc" target="_blank" rel="noopener noreferrer">
   <img
-    src="https://img.shields.io/badge/%F0%9F%8E%81_%E0%A4%AB%E0%A5%8D%E0%A4%B0%E0%A5%80%E0%A4%AC%E0%A5%87%E0%A4%9F_%E0%A4%B2%E0%A5%87%E0%A4%82-ff007f?style=for-the-badge&labelColor=111827"
-    alt="फ्रीबेट लें — 1win"
+    src="https://img.shields.io/badge/🏏_BET_NOW-ff007f?style=for-the-badge&labelColor=111827"
+    alt="GT vs MI पर बेट — 1win"
     width="520"
     style="display:block; margin:18px auto;"
   />
 </a>
+
+<p align="center"><b>अभी बेट करें</b></p>
 
 ## 🎁 प्रोमो कोड: **ONER**  |  🆓 फ्रीबेट (डिपॉज़िट पर)
 | डिपॉज़िट (INR) | फ्रीबेट |
