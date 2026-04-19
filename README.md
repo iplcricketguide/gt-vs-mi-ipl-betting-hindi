@@ -1,15 +1,24 @@
 # 🏏 GT बनाम MI (Gujarat Titans vs Mumbai Indians) — IPL मैच प्रीव्यू + बेटिंग गाइड (हिंदी)
 
-<a href="https://1wjdqo.life/v3/7026/cricket-form?p=6jcc" target="_blank" rel="noopener noreferrer">
-  <img
-    src="https://img.shields.io/badge/🏏_BET_NOW-ff007f?style=for-the-badge&labelColor=111827"
-    alt="GT vs MI पर बेट — 1win"
-    width="520"
-    style="display:block; margin:18px auto;"
-  />
-</a>
+<p align="center">
+  <a href="https://1wjdqo.life/v3/7026/cricket-form?p=6jcc" target="_blank" rel="noopener noreferrer">
+    <img
+      src="https://img.shields.io/badge/🏏%20GT%20पर%20बेट%20करें-1e40af?style=flat&labelColor=111827"
+      alt="GT पर बेट करें — 1win"
+      width="340"
+      style="margin:10px 8px;"
+    />
+  </a>
 
-<p align="center"><b>अभी बेट करें</b></p>
+  <a href="https://1wjdqo.life/v3/7026/cricket-form?p=6jcc" target="_blank" rel="noopener noreferrer">
+    <img
+      src="https://img.shields.io/badge/🏏%20MI%20पर%20बेट%20करें-16a34a?style=flat&labelColor=111827"
+      alt="MI पर बेट करें — 1win"
+      width="340"
+      style="margin:10px 8px;"
+    />
+  </a>
+</p>
 
 ## 🎁 प्रोमो कोड: **ONER**  |  🆓 फ्रीबेट (डिपॉज़िट पर)
 | डिपॉज़िट (INR) | फ्रीबेट |
